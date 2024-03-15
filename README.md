@@ -6,6 +6,6 @@ Hi! I'm Jack.
 
 <br>But I do some endeavors.
 <br>Follow me and learn about.. them.
-<br>Also, help me fund.. this. |[Help fund my insanity](https://liberapay.com/7jack443)| |---|
+<br>Also, help me fund.. this. [Help fund my insanity](https://liberapay.com/7jack443)
 
 
